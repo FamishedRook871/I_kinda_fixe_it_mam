@@ -1,0 +1,2 @@
+# I_kinda_fixe_it_mam
+abcdefghijklmnopqrstuvwxyz
